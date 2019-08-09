@@ -1,2 +1,2 @@
-# ideal-octo-waddle
-DiscordBot
+# Halt die Fresse DiscordBot
+hOcHqUaLiTaTiVeR dIsCoRdBoT
